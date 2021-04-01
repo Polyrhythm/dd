@@ -37,3 +37,7 @@ Well gee whiz, who the fuck is this? Let's hang out.
 And so they did.
 
 ## Kim and Sam
+Kim and Sam? Sam and Kim? Hmm.
+
+You know how this goes. Girl meets girl kinda thing.
+Sam shows Kim some stuff. Blows her mind. As you do.
